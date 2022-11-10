@@ -1,0 +1,1 @@
+Esta página fue creada con el fin de ocio y no implica sacrficio válido alguno
